@@ -4,7 +4,7 @@
 
 Бонусы по промокоду - 100 FS и 100% бонус на первый депозит
 
-[DADDY CASINO САЙТ](https://linksc.ru/daddy_fvip)
+[DADDY CASINO САЙТ](https://linkcasino.ru/daddy_e100)
 
 
 
